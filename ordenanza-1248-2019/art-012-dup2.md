@@ -1,0 +1,8 @@
+ARTICULO 12º: Modifícase el Capítulo XVI, Artículo 17 de la Ordenanza Impositiva vigente, el que quedará redactado en los siguientes términos:
+CAPITULO XVI
+TASA POR SERVICIOS ASISTENCIALES
+“ARTÍCULO 17º: Por el derecho de uso de ambulancia se abonará la siguiente tasa:
+1.- Por derecho de uso de ambulancia
+dentro del Partido y la Planta urbana de Tres Lomas $ 650.
+2.1.- Para viajes fuera del partido, por Kilómetro corrido se abonará el equivalente al veinticinco por ciento (25 %) del valor de la nafta especial, vigente a la fecha de utilización del servicio.-
+2.2. Por derecho de ambulancia para espectáculos públicos, con personal de enfermería y chofer, por hora abonarán $ 329.”
