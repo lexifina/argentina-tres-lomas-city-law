@@ -1,0 +1,1 @@
+Artículo 1 bis: Autorizase al Departamento Ejecutivo Municipal a ceder onerosamente, a favor de quienes adquieran viviendas de construcción en seco, los lotes que sean designados por el Departamento Ejecutivo, del denominado Barrio Yani, a los fines de instalar en ellos las referidas viviendas, adquiridas mediante planes otorgados por las empresas de construcción”
