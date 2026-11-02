@@ -1,0 +1,11 @@
+# Ordenanza 1393/2022: Autorízase al Departamento Ejecutivo a vender y/o entregar en parte de pago para la adquisición de una nueva motoniveladora, una de las siguientes unidades, propiedad de la Municipalidad de Tres Lomas:
+
+Ordenanza 1393/2022 · 1 versions, from 2022-09-04 (latest in force: 2022-09-04) · <https://sibom.slyt.gba.gob.ar/bulletins/7419/contents/1758205>
+
+| Provision | File | Changes | Last changed |
+| --- | --- | ---: | --- |
+| Artículo 1 | [art-001.md](art-001.md) | 0 |  |
+| Artículo 2 | [art-002.md](art-002.md) | 0 |  |
+| Artículo 3 | [art-003.md](art-003.md) | 0 |  |
+| Artículo 4 | [art-004.md](art-004.md) | 0 |  |
+| Encabezado | [encabezado.md](encabezado.md) | 0 |  |
